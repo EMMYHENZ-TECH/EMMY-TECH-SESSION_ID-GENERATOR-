@@ -1,4 +1,4 @@
 ### `*SESSION ID GENERATOR DEVELOPED BY EMMY HENZ*`
 # *EMMY HENZ MD😜😜😜*
 # *SESSION ID GENERATOR FOR ONLY EMMY HENZ BOT*
-# *GROUP LINK>>> https://chat.whatsapp.com/KEG60dJcOVVH4kbGkwUkKE*
+# *GROUP LINK>>> [`https://whatsapp.com/channel/0029VangYOt96H4JhFarL10C`]*
