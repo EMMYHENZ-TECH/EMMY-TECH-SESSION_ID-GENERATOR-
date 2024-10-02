@@ -1,4 +1,5 @@
 # *SESSION ID GENERATOR FOR ONLY EMMY HENZ BOT*
-#***CHANNEL LINK>>> [`FOLLOW`](https://whatsapp.com/channel/0029VangYOt96H4JhFarL10C)***
+# ***CHANNEL LINK>>> [`FOLLOW`](https://whatsapp.com/channel/0029VangYOt96H4JhFarL10C)***
+
 `*SESSION ID GENERATOR DEVELOPED BY EMMY HENZ*`
 
