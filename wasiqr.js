@@ -67,10 +67,10 @@ router.get('/', async (req, res) => {
 ▬▬▬▬▬▬▬▬▬▬▬▬▬▬
 ❶ || Creator = 𖥘 EMMANUEL HENSHAW 𖥘
 ▬▬▬▬▬▬▬▬▬▬▬▬▬▬
-❷ || WhattsApp Channel = https://whatsapp.com/channel/0029VamXpoF7oQhZY8evv81C
+❷ || WhattsApp Channel = 👉 https://whatsapp.com/channel/0029VangYOt96H4JhFarL10C 👈
 ▬▬▬▬▬▬▬▬▬▬▬▬▬▬
 Please Follow My Support Channel
-Wanna talk to me?👉 https://chat.whatsapp.com/KEG60dJcOVVH4kbGkwUkKE 👈
+Wanna talk to me?👉 https://t.me/EmmyHenz 👈
 ▬▬▬▬▬▬▬▬▬▬▬▬▬▬
 ©*2024-2099 EMMANUEL HENSHAW*
 _____________________________________
